@@ -8,4 +8,4 @@
 * ...
 
 ### Connect me via phucbuihuu2604@gmail.com
-#### Copyright &#164; 2023 Maotou
+#### Copyright &#169; 2023 Maotou
